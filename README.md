@@ -1,1 +1,1 @@
-https://github.com/firaysamedzade-source/slozhno-sosredotochitsya.git
+https://github.com/firaysamedzade-source/slozhno-sosredotochitsya-ad-1
